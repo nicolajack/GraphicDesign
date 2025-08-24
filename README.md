@@ -17,7 +17,7 @@ I also currently run the Boston University Hack4Impact Instagram profile.
 
 <br>
 
-In addition, I run the Bu Quantum Instagram profile.
+In addition, I run the BU Quantum Instagram profile.
 
 <a href="https://www.instagram.com/bostonuquantum/?hl=en">Check it out here!</a>
 
